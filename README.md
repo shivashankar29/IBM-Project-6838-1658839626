@@ -9,7 +9,7 @@ Member 1 -  Vasanth
 
 Member 2 - Bhawesh
 
-Member 3 - Shiv Shankar
+Member 3 - Shiva Shankar
 
 About
 
